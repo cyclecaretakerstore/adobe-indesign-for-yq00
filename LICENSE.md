@@ -1,4 +1,4 @@
-
+Enhance Adobe InDesign for macOS with Adobe InDesign for macOS premium Action - AI-assisted design and non-destructive editing, the #1 action. Includes AI-assisted design and
 
 
 
